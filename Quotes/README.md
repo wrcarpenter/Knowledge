@@ -1,3 +1,5 @@
+Strive to be the casino, not the gambler.
+
 Stay hungry, stay foolish. 
 
 It gets easier, but it never gets easy. 
@@ -19,4 +21,9 @@ There's no talent here. This is hard work. This is an obsession.
 Losers focus on winners. Winners focus on winning.
 
 We're not here to take part, we're here to take over.
+
+
+
+
+
 
