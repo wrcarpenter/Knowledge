@@ -4,10 +4,13 @@ Quotes, people, historical events, brain-teasers.
 
 ## People 
 
-John Devaney 
+John Devaney (Fixed Income Trader)
 
-John Singer Sargent
+John Singer Sargent (Painter, 1856 - 1925)
 
-Carlos Hathcock
+The London Whale (Options Trader)
 
-(Other bond traders)
+Fischer Black (Mathematican) 
+
+Carlos Hathcock (Sniper)
+
