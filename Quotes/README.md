@@ -6,7 +6,9 @@
 
 "Stay hungry, stay foolish." - Steve Jobs
 
-"Slow is smooth, smooth is fast." - Navy Seals 
+"Slow is smooth, smooth is fast." - Navy Seals
+
+"Ain't no rest for the wicked good painters." - personal
 
 "It might get easier, but it never gets easy." - unknown/personal
 
