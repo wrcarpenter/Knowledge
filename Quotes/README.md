@@ -24,7 +24,7 @@ Make the best of an emergency.
 
 I would rather die of passion than of boredom.
 
-Losers focus on winners. Winners focus on winning.
+"Losers focus on winners. Winners focus on winning." - Tom Brady
 
 
 
