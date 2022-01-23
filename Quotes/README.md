@@ -1,3 +1,9 @@
+"Be not afraid of going slowly, be afraid only of standing still." - Chinese Proverb
+
+"No time like the present, a thousand unforeseen circumstances may interrupt you at a future time." - John Trusler
+
+"Good, better, best. Never let it rest. 'Til your good is your better and your better is best." 
+
 "There's no talent here. This is hard work. This is an obsession." - Conor Mcgregor
 
 "Strive to be the casino, not the gambler." - Bill Carpenter
