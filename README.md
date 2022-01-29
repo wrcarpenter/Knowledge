@@ -18,4 +18,8 @@ Giacomo Casanova
 
 Otis Redding
 
+Ken Griffin 
 
+Dr. Michael Burry
+
+Bill Gross
