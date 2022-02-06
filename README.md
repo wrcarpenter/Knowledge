@@ -14,12 +14,16 @@ Fischer Black (Mathematican)
 
 Carlos Hathcock (Sniper)
 
-Giacomo Casanova
+Giacomo Casanova (author)
 
-Otis Redding
+Otis Redding (soul singer)
 
-Ken Griffin 
+Ken Griffin (hedge funds)
 
-Dr. Michael Burry
+Dr. Michael Burry (bond trading)
 
-Bill Gross
+Bill Gross (bond trading)
+
+Bill Benter (horse-race betting)
+
+
