@@ -32,6 +32,8 @@ I would rather die of passion than of boredom.
 
 "Losers focus on winners. Winners focus on winning." - Tom Brady
 
+"If past history was all there was to the game, the richest people would be librarians." – Warren Buffett
+
 
 
 
