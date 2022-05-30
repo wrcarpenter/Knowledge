@@ -34,6 +34,8 @@ I would rather die of passion than of boredom.
 
 "If past history was all there was to the game, the richest people would be librarians." – Warren Buffett
 
+"How we spend our days is, of course, how we spend our lives." - Annie Dillard
+
 
 
 
