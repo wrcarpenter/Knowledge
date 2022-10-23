@@ -1,3 +1,5 @@
+"Live daringly, boldly, fearlessly. Taste the relish to be found in competition - in having put forth the best within you." - Henry J Kaiser
+
 "Be not afraid of going slowly, be afraid only of standing still." - Chinese Proverb
 
 "No time like the present, a thousand unforeseen circumstances may interrupt you at a future time." - John Trusler
