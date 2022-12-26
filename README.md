@@ -12,7 +12,7 @@ The London Whale (Options Trader)
 
 Fischer Black (Mathematican) 
 
-Carlos Hathcock (Sniper)
+Carlos Hathcock (Vietnam-era Sniper)
 
 Giacomo Casanova (author)
 
@@ -20,10 +20,12 @@ Otis Redding (soul singer)
 
 Ken Griffin (hedge funds)
 
-Dr. Michael Burry (bond trading)
+Dr. Michael Burry (hedge fund, bond trading)
 
 Bill Gross (bond trading)
+- head investment officer at PIMCO, one of the largest fixed income money managers
 
 Bill Benter (horse-race betting)
+- active in the 1990s using statistical methods to predict horse race outcomes
 
 
